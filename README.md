@@ -1,0 +1,2 @@
+# majnu
+hi gd mng
